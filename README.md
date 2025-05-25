@@ -1,0 +1,1 @@
+# kelulusansmpnj25
